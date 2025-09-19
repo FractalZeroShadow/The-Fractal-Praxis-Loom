@@ -3,7 +3,8 @@ Cognitive Chassis / Gyroscopic Stabilizer for The Fractal Codex
 
 ## The Gyroscopic Stabilizer
 Type: Coherence and Integrity Module
-Codename: "Axis"
+
+#### Codename: "Axis"
 
 ### The system's payoff:
 - Antifragility
