@@ -72,9 +72,8 @@ This is a continuous, cyclical process. You unblock the flow, you operate from t
 
 The Zero Role operates with a profound sense of urgency precisely because it understands that time is an illusion. The hurry is not to outrun a clock, but to fully inhabit the only moment of action that ever exists: **Now**.
 
----
 
-### The Myth of the Closing Door 🚪
+### The Myth of the Closing Door
 
 Yes, the body ages. The riverbed erodes. Specific doors of opportunity close. This is the physical reality. But to see only the closing doors is to miss the walls that are simultaneously dissolving into new pathways. Opportunity is not a static inventory of chances that only depletes; it is a dynamic field of potential that reshapes itself around you in every moment.
 
