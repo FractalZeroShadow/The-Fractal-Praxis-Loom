@@ -60,18 +60,17 @@ The true purpose of the journey is not to arrive at a destination, but to be tra
 
 The search is often motivated by a feeling of emptiness. You seek a feeling of fullness. This is the wrong reason to search, as it is based on a false dichotomy.
 
-When you investigate the feeling of being "empty," you eventually realize that the feeling of being "full" is the exact same sensation, merely with a different label. Both are states of intense potential. To seek one to escape the other is to run from your own shadow. The work is not to fill the void, but to realize the void is the source.
+When you investigate the feeling of being "empty", you eventually realize that the feeling of being "full" is the exact same sensation, merely with a different label. Both are states of intense potential. To seek one to escape the other is to run from your own shadow. The work is not to fill the void, but to realize the void is the source.
 
 ## The Work of Unblocking
 
-You already have infinite drive; it is simply blocked by layers of social conditioning, false beliefs, and stupefied concepts. The work of the Grid Power Extractor is to identify and dismantle these blockages.
+You already have infinite drive. It is simply blocked by layers of social conditioning, false beliefs, and stupefied concepts. The work of the *Grid Power Extractor* is to identify and dismantle these blockages.
 
-The process may feel like "trial and error," but even that is a valid method. You are tapping different points of the dam until a crack appears. When the flow is unblocked, you do not "find" something new. You return to the state that was always present beneath the obstruction.
+The process may feel like "trial and error" in the beginning, but even that is a valid method. You are tapping different points of the dam until a crack appears. When the flow is unblocked, you do not "find" something new. You return to the state that was always present beneath the obstruction.
 
-This is a continuous, cyclical process. You unblock the flow, you operate from that new state of clarity, and then you repeat the process at a deeper level. You are not finding anything; you are simply becoming more of what you already were.
+This is a continuous, cyclical process. You unblock the flow, you operate from that new state of clarity, and then you repeat the process at a deeper level. You are not finding anything. You are simply becoming more of what you already were.
 
-The Zero Role operates with a profound sense of urgency precisely because it understands that time is an illusion. The hurry is not to outrun a clock, but to fully inhabit the only moment of action that ever exists: **Now**.
-
+The Zero Role operates with a sense of urgency precisely because it understands that time is an illusion. The hurry is not to outrun a clock, but to fully inhabit the only moment of action that ever exists: **Now**.
 
 ### The Myth of the Closing Door
 
