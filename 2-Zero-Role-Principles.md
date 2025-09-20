@@ -75,6 +75,6 @@ The Zero Role operates with a profound sense of urgency precisely because it und
 
 ### The Myth of the Closing Door
 
-Yes, the body ages. The riverbed erodes. Specific doors of opportunity close. This is the physical reality. But to see only the closing doors is to miss the walls that are simultaneously dissolving into new pathways. Opportunity is not a static inventory of chances that only depletes; it is a dynamic field of potential that reshapes itself around you in every moment.
+Yes, the body ages. The riverbed erodes. Specific doors of opportunity close. This is the physical reality. But to see only the closing doors is to miss the walls that are simultaneously dissolving into new pathways. Opportunity is not a static inventory of chances that only depletes. It is a dynamic field of potential that reshapes itself around you in every moment.
 
 To indulge in the memory of missed opportunities is a **theft of presence**. It is the act of using the finite energy of *Now* to mourn a *Then* that no longer exists. This is the most inefficient use of your resources.
