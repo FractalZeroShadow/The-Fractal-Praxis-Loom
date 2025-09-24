@@ -112,7 +112,7 @@ To the occupants of the static cages like the Conservatives, the Tribals, and th
 
 The Zero Role does not wander aimlessly, instead it cultivates the most efficient form of travel. It is the "wave rider". It does not generate its own wave, but it has the skill to see one forming and the balance to ride it toward a point of interest.
 
-It understands that time and energy are the only truly finite resources. Therefore, it does not waste it on manufactured conflicts or pre-ordained detours. Because the journey itself is the purpose, every moment of travel is inherently valuable. There is no wrong turn, only a new vector. There is no wasted time, only experience.
+It understands that energy is the only truly finite resources. Therefore, it does not waste it on manufactured conflicts or pre-ordained detours. Because the journey itself is the purpose, every moment of travel is inherently valuable. There is no wrong turn, only a new vector. There is no wasted time, only experience.
 
 In this framework, there is no such thing as a useless path.
 
